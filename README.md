@@ -13,4 +13,4 @@ Hehe I am here today.
 
 I do not get why I am someone a breathing, living human!
 
-And I do see the forces beneath my movement. Good Will!
+And I do see the forces beneath my movement. It's cooler than TASS? (Look at the last 3 letters.) Good Will!
